@@ -1,7 +1,9 @@
 ### About me
 
-**Bulovatsky Denis**
 ![Alt text](image.png)
+
+**Bulovatsky Denis**
+
 [i@bulavackii.ru](i@bulavackii.ru)
 _8(999)999-99-99_
 
