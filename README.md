@@ -2,7 +2,7 @@
 
 ![Alt text](image.png)
 
-**Bulovatsky Denis**
+**Bulavatsky Denis**
 
 [i@bulavackii.ru](i@bulavackii.ru)
 _8(999)999-99-99_
